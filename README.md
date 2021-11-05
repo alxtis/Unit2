@@ -20,6 +20,6 @@ Having been introduced to this brief, I was immediatly concerned about having to
 
 ## RESEARCH
 
-During my intial process I came across Viktor & Rolf's fashion show in 2002 "blue screen".
+During my intial process I came across the designer duo Viktor & Rolf's and their 2002 fashion show "long live the immaterial". The fashion show consisted of all-black outfits with hints of royal blue such as the collar, pockets, belts or patterns. As mesmerasing the designs were, the real star of the show was the very well thought through backdrop.
 
 
