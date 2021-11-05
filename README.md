@@ -26,3 +26,6 @@ During my intial process I came across the designer duo Viktor & Rolf and their 
 [![IMAGE ALT TEXT](picture5.jpg)](https://www.youtube.com/watch?v=mMBpRmIivUA)
 
 
+![ ](picture6.jpg)
+
+
