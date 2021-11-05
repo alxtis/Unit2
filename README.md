@@ -1,6 +1,6 @@
 # Unit2
 Read.me file for Unit 2.
-# ASCII FASHION PRINT
+# ASCII FASHION PROJECTION
 
 ## APPROACH
 
