@@ -18,6 +18,8 @@ During my intial process I came across the designer-duo Viktor & Rolf and their 
 ### FASHION AND TECHNOLOGY
 Another aspect to take into consideration is the use of technology in order to create garments as well as technology directly used within garments as they are worn. The industrialisation has made it possible to come up with new techniques, materials and processes for garment making. A pioneering designer in this field would be Iris van Herpen who constantly challenges herself by taking the most impossible material and turning it into clothing. She heavily relies on technology such as laser cutting, 3D printing and a range of newly explored materials.
 
+![ ](picture8.jpg)
+
 ### DIGITAL FASHION
 As a next step I looked into the art of digital fashion and the insane development it is undergoing right now. The reason why digital fashion is slowly starting to boom is due to its benefits; digital fashion is environmentaly friendly and the prices are a lot more reasonable, therefore making it purchasable for a broader audience. Additionally, due to its digital nature it is possible to animate the clothing. This is opening up a whole new sphere into the exploration of garments and their movement in a certain space.
 
