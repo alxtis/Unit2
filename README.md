@@ -30,5 +30,5 @@ During my intial process I came across the designer duo Viktor & Rolf and their 
 
 ## CONCEPT
 
-The research I undertook inspired me
+The research I undertook then motivated me to go down a similar road with my process. I want to conceptualise a fashion show that features heavily white clothing with moving ASSIC art textures projected onto it. Inspired by Viktor & Rolf, as well as the Matrix franchise I want to open a discussion on wheter or not digital reality is just an illusion or not, despite it not being physical. Obviously, I am completly aware I will not come even close to finishing this project and will only be left with a concept in its very initial stages, which is completly fine.
 
