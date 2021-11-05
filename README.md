@@ -1,22 +1,10 @@
 # Unit2
 Read.me file for Unit 2.
-# ASCII FASHION PROJECTION
+# DIGITAL FASHION IN A PHYSICAL SPACE - CONCEPT
 
 ## INITIAL APPROACH
 
-Having been introduced to this brief, I was immediatly concerned about having to deal with yet another project that wouldn't allow me to explore the field I am interested in. However, I quickly decided to get inventive in finding a way on introducing creative computing to the fashion community. Something that immediatly had me hooked during the presentation on monday was the creation of ASCII (American Standart Code for Information Interchange) art and the textures ASCII generators create. Therefore, I went out and got pictures of as many textures as I possibly could in order to eventually use them for a fashion concept.
-
-
-![ ](picture1.jpg)
-
-
-![ ](picture2.jpg)
-
-
-![ ](picture3.jpg)
-
-
-![ ](picture4.jpg)
+Having been introduced to this brief, I was immediatly concerned about having to deal with yet another project that wouldn't allow me to explore the field I am interested in. However, I quickly decided to get inventive in finding a way on introducing creative computing to the fashion community. Something that immediatly had me hooked during my initial research were the possibilities in merging digital reality with physical fashion.
 
 ## VIKTOR & ROLF
 
@@ -34,8 +22,10 @@ As a next step I looked into the art of digital fashion and the insane developme
 
 ![ ](picture7.jpg)
 
+## FASHION AND TECHNOLOGY
 
-## CONCEPT
+
+## MOVING FORWARD
 
 The research I undertook then motivated me to go down a similar road with my process. I want to conceptualise a fashion show that features heavily white clothing with moving ASSIC art textures projected onto it. Inspired by Viktor & Rolf, as well as the Matrix franchise I want to open a discussion on wheter or not digital reality is just an illusion or not, despite it not being physical. Obviously, I am completly aware I will not come even close to finishing this project and will only be left with a concept in its very initial stages, which is completly fine.
 
