@@ -30,3 +30,5 @@ During my intial process I came across the designer duo Viktor & Rolf and their 
 
 ## CONCEPT
 
+The research I undertook inspired me
+
