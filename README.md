@@ -29,6 +29,5 @@ As a next step I looked into the art of digital fashion and the insane developme
 **AURO BOROS**
 
 ### MOVING FORWARD
-This one week exploration on how creative computing could and has been implemented in the fashion world really made me eager to dive deeper into the digital world.
-
+At the beginning of this week I was really worried I wouldn't find any joy in this project. However, the exploration on how creative computing could and has been implemented in the fashion world during the past few days really made me understand its importance and made me eager to dive deeper into this magical and mesmerising world. The research I undertook lit a little flame within me and I am dying to emerge myself in all the possibilities that appeared right infront of me. Nevertheless, I am very much intimidated by all the practice that goes into it and don't really know where to even begin. I am excited for the journey that is ahead of me and can't wait to see where it will lead me.
 
