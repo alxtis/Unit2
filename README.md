@@ -29,5 +29,6 @@ As a next step I looked into the art of digital fashion and the insane developme
 **AURO BOROS**
 
 ### MOVING FORWARD
+This one week exploration on how creative computing could and has been implemented in the fashion world really made me eager to dive deeper into the digital world.
 
 
