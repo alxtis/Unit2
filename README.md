@@ -14,7 +14,6 @@ During my intial process I came across the designer-duo Viktor & Rolf and their 
 [![IMAGE ALT TEXT](picture5.jpg)](https://www.youtube.com/watch?v=mMBpRmIivUA)
 
 ![ ](picture6.jpg)
-**AURO BOROS**
 
 ### FASHION AND TECHNOLOGY
 Another aspect to take into consideration is the use of technology in order to create garments as well as technology directly used within garments as they are worn. The industrialisation has made it possible to come up with new techniques, materials and processes for garment making. A pioneering designer in this field would be Iris van Herpen who constantly challenges herself by taking the most impossible material and turning it into clothing. She heavily relies on technology such as laser cutting, 3D printing 
@@ -24,6 +23,7 @@ As a next step I looked into the art of digital fashion and the insane developme
 
 
 ![ ](picture7.jpg)
+**AURO BOROS**
 
 ### MOVING FORWARD
 
