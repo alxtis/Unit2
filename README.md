@@ -32,7 +32,7 @@ During my intial process I came across the designer-duo Viktor & Rolf and their 
 As a next step I looked into the art of digital fashion and the insane development it is undergoing right now. The reason why digital fashion is slowly starting to boom is due to its benefits; digital fashion is environmentaly friendly and the prices are a lot more reasonable, therefore making it purchasable for a broader audience. Additionally, due to its digital nature it is possible to animate the clothing. This is opening up a whole new sphere into the exploration of garments and their movement in a certain space.
 
 
-![ ](picture.jpg)
+![ ](picture7.jpg)
 
 
 ## CONCEPT
