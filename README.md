@@ -4,7 +4,7 @@ Read.me file for Unit 2.
 
 ## INITIAL APPROACH
 
-Having been introduced to this brief, I was immediatly concerned about having to deal with yet another project that wouldn't allow me to explore the field I am interested in. However, I quickly decided to get inventive in finding a way on introducing creative computing to the fashion community. Something that immediatly had me hooked during my initial research were the possibilities in merging digital reality with physical fashion.
+Having been introduced to this brief, I was immediatly concerned about having to deal with yet another project that wouldn't allow me to explore the field I am interested in. However, I quickly decided to get inventive in finding a way on introducing creative computing to the fashion community. Something that immediatly had me hooked during my initial was the idea of merging digital reality and physical fashion and the possibilities it would provide.
 
 ## VIKTOR & ROLF
 
@@ -23,9 +23,9 @@ As a next step I looked into the art of digital fashion and the insane developme
 ![ ](picture7.jpg)
 
 ## FASHION AND TECHNOLOGY
+Another aspect to take into consideration is the use of technology in order to create garments as well as technology directly used within garments as they are worn.
 
 
 ## MOVING FORWARD
 
-The research I undertook then motivated me to go down a similar road with my process. I want to conceptualise a fashion show that features heavily white clothing with moving ASSIC art textures projected onto it. Inspired by Viktor & Rolf, as well as the Matrix franchise I want to open a discussion on wheter or not digital reality is just an illusion or not, despite it not being physical. Obviously, I am completly aware I will not come even close to finishing this project and will only be left with a concept in its very initial stages, which is completly fine.
 
