@@ -20,4 +20,6 @@ Having been introduced to this brief, I was immediatly concerned about having to
 
 ## RESEARCH
 
+During my intial process I came across Viktor & Rolf's fashion show in 2002 "blue screen".
+
 
