@@ -18,4 +18,6 @@ Having been introduced to this brief, I was immediatly concerned about having to
 
 ![ ](picture4.jpg)
 
+## RESEARCH
+
 
