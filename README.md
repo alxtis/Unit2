@@ -6,7 +6,7 @@ The first thing that comes to your mind when thinking of creative computing isn'
 Unfortunately, a quick wikipedia search won't give you the answer as it is described quite complicated for someone who is new to the subject. But don't you worry, I am here to break it down for you; it basically refers to the usage of techonolgy within a creative field. However, don't quote me on that! I don't know if that explenation fully covers every aspect of it. Anyway, we are beginners, so my explenation will be accurate enough for now.
 
 #### SOUNDS COMPLICATED! HOW IS THAT EVEN APPLICABLE TO FASHION?
-I am glad you asked! In the upcoming few paragraphs I will give you some examples of technology in fashion. We are mainly gonna talk about how technology can be used to be part of the garment itself. Thinking about it, can the model wearing it be classified as a robot? (Badumtss). Anyway, moving on. >I am also going to briefly touch upon digtial fashion and the metaverse. In the metaverse you can buy clothing that is only present visually but not physically.
+I am glad you asked! In the upcoming few paragraphs I will give you some examples of technology in fashion. We are mainly gonna talk about how technology can be used to be part of the garment itself. Thinking about it, can the model wearing it be classified as a robot? (Badumtss). Anyway, moving on. I am also going to briefly touch upon digtial fashion and the metaverse. In the metaverse you can buy clothing that is only present visually but not physically.
 
 So buckle up and let's get started:
 
