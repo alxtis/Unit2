@@ -15,6 +15,8 @@ Okay, since we are talking about an absolute massive market here, I chose sa cou
 
 Next, let's look at Ying Gao, also known as the fashion airbender. She studied fashion design in Switzerland and the central theme of her work is air. Her garments react to air in different kind of ways; one being inflated as soon as the pressure dectector in the back of it gets touched, another one unfurls with the breath of the wearer and final one that is animated when approached. Only people having studied in Switzerland can come up with such complex concepts, what a country full of geniuses. Did I mention I grew up in Switzerland and lived there up to my early 20s?
 
+Finally, I would like to introduce you to Iris Van Herpen, the fashion technology godess herself. She often gets inspired by the most impossible materials to recreate, therefore relying on advanced technology to mimic those materials in some shape or another. For example, one of her dresses looks like water is splashed onto the model's body, how insane is that? She basically reinvented the Niagara Falls with that garment. She also had an instillation in which a dress got directly 3D printed onto the model infront of an audience - pure insanity in the best way possible. However, I need to shut op now otherwise I will never stop talking blabbing on about her.
+
 ## WERABLES CREATED USING TECHNOLOGY
 
 ## VIRTUAL WEARABLES
