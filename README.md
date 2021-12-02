@@ -10,7 +10,7 @@ I am glad you asked! In the upcoming few paragraphs I will give you some example
 
 So buckle up and let's get started:
 
-## WEREABLE TECHNOLOGY
+## DIGITAL FASHION
 Okay, since we are talking about an absolute massive market here, I chose a couple of examples that I personally find quite interesting to look at. First I wanna talk about a designer called Hussein Chalayan. Not only because he graduated from Central Saint Martins and I like to brag about how I go to the same University as designers that became famous, but also because he is an absolute prime example of someone who creates wearable technology. He uses a variation of methods to implement technology into his garments, like lights, lasers and crystals, but also puts machinery into his clothing, making them fully transformative. Sidenote: Did you know he worked with Tilda Swinton? Cool, right? I hope my degree will bring me an opportunity like that too! 
 
 Next, let's look at Ying Gao, also known as the fashion airbender. She studied fashion design in Switzerland and the central theme of her work is air. Her garments react to air in different kind of ways; one being inflated as soon as the pressure dectector in the back of it gets touched, another one unfurls with the breath of the wearer and a final one is animated when approached. Only people having studied in Switzerland can come up with such complex concepts, what a country full of geniuses! Did I mention I grew up in Switzerland and lived there up to my early 20s?
