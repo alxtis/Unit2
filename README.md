@@ -10,7 +10,7 @@ Unfortunately, a quick wikipedia search won't give you the answer as it is descr
 I am glad you ask! I am gonna break this article into three subcategories that each explore the usage of technology within fashion in a different way. First, we are gonna talk about how technology can be used to be part of the garment itself. Thinking about it, can the model wearing it be classified as a robot? Anyway, moving on. Additionally, technology can not only be used on the garments, but also to create the garments. Groundbraking, isn't it? Last but absolutely not least, I am going to talk about the metaverse. In the metaverse you can buy clothing that is only present visually but not physically, almost like in the matrix. 
 So buckle up and let's get started!
 
-## WEREABLE TECHNOlOGY
+## WEREABLE TECHNOLOGY
 
 ## WERABLES CREATED USING TECHNOLOGY
 
