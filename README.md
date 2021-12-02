@@ -18,4 +18,5 @@ Next, let's look at Ying Gao, also known as the fashion airbender. She studied f
 
 Finally, I would like to introduce you to Iris Van Herpen, the fashion technology godess herself. She often gets inspired by the most impossible materials to recreate, therefore relying on advanced technology to mimic those materials in some shape or another. For example, one of her dresses looks like water is splashed onto the model's body, how insane is that? She basically reinvented the Niagara Falls with that garment. She also had an instillation in which a dress got directly 3D printed onto the model. All infront of an audience - pure insanity in the best way possible! However, I need to shut op now ir otherwise I will never stop blabbing on.
 
-## VIRTUAL WEARABLES
+## DIGITAL FASHION
+Apologies for bringing her up in advance, but ever since miss Rona crashlanded on earth, the fashion industry has been moving more and more into the digital realm. However,
