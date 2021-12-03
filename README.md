@@ -1,7 +1,10 @@
-**ALXTIS** // FASHION BEYOND
+
 # AN INTRODUCTION TO CREATIVE COMPUTING WITHIN FASHION 
 ## INTRODUCTION
-The first thing that comes to your mind when thinking of creative computing isn't necessarily fashion, is it? Overall, the subject seems quite dull and not nearly as exciting as a striking new garment strolling down the fasion runway during the latest season. However, this article will completely change your perspective on technology within fashion and is going to open you up to a whole new dimension for you to get lost and mesmerized in. 
+**ALXTIS** // FASHION BEYOND
+<p align="center">
+2.The first thing that comes to your mind when thinking of creative computing isn't necessarily fashion, is it? Overall, the subject seems quite dull and not nearly as exciting as a striking new garment strolling down the fasion runway during the latest season. However, this article will completely change your perspective on technology within fashion and is going to open you up to a whole new dimension for you to get lost and mesmerized in.
+</p>
 
 #### BUT WHAT EVEN IS CREATIVE COMPUTING?
 Unfortunately, a quick Wikipedia search won't give you the answer as it is described quite complicated for someone who is new to the subject. But don't you worry, I am here to break it down for you; it basically refers to the usage of technology within a creative field. However, don't quote me on that! I don't know if that explanation fully covers every aspect of it. Anyway, we are beginners, so my wording will be accurate enough for now. 
@@ -22,3 +25,4 @@ I would also like to introduce you to **Iris Van Herpen**, the fashion technolog
 Lastly, we are going to talk about **Auroboros**, a digital fashion brand that creats digital clothing. It all started off as a means of creating high end fashion that wouldn't be as environmentally unfriendly and less overprized. What it means is they are selling a service in which they will edit digital clothing onto a picture of you. At least someone is thinking about the fashion-obsessed CSM students with 30k of depth on their back who want to have an expensive looking Instagram feed. Additionally, they have also started to produce MR filters, meaning that you can download a filter onto your phone that will detect your body and put you into their digital clothing designs. Obviously, the clothing will only appear on your phone screen and not actually in real life. We haven't reached the Matrix just yet, regardless of the fourth movie coming out soon. However, (and apologies for bringing her up in advance), the fashion industry has been moving increasingly into the digital realm and is trying to escape from burning planet earth into the metaverse ever since miss Rona crash landed on earth. The metaverse is basically this alternate dimension in which we can take on another identity. It's quite scary and overly complicated material, but somehow, I am still very addicted to reading about it. 
 
 And here we are, the end of this text. I hope you enjoyed this truly short but exciting trip into creative computing within fashion. Who knows, maybe you've picked up interest in it yourself? Take care and we will see each other in the metaverse. All glammed up of course! 
+
